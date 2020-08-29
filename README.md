@@ -1,2 +1,7 @@
 # 0
-0
+# type writer (speed race)
+I once thought that if i eat my fear i will not fear it for i have eaten it but i was wrong.One night i saw a taranrula my my grearest fear i didn't know what to do so i ate it just like i thought.
+as the spider crawled creeping i picked the monstorous thing it flailed anf=d wriggled as I pick it up it was a disgusting feeling as I raised it higher and higher it looked at me with its eight eyes I put the monstorous thing in my mouth as i clampped my mouth shut I felt its two front legs fall off as i chewed i felt it wriggle and die.I felt its hairy body with my tounge,it was a disgusting sensation.then i swallowed it as its hairy and disembodied body went down my throat I looked in the mirror seeing my reflection its my reflection right ,right? i saw its eight eyes looking back at me or are they my eyes? I didn'nt know what I'm looking at i just cant make out what im looking at i just cant look at it any longer.I looked away thinking about what I just saw in the mirror...
+# part 2
+I'm thinking and thinking what did i just see?I saw a monster was that me?did eating my fear make me into this monster what am I?
+I could'nt takethis mental damage.I got beer from my fridge I kept on drinking I kept on drinking and drinking until I passed out the next morning i looked into the mirror and i saw my normal reflection.i assume what I saw yesterday was just a dream.I just cant help thinking myself becoming my fear after consuming my fear
