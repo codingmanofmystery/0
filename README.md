@@ -1,6 +1,6 @@
-# 0
-# type writer (speed race) or book
-# Spilted
+# Spider's curse
+
+# first work of Haram Choi
 # chapter 1
 I once thought that if I eat my fear I will not fear it for I  have eaten it but I was wrong.One night I saw a taranrula my grearest fear I didn't know what to do so I ate it just like i thought.
 as the spider crawled creeping I picked the monstorous thing it flailed and wriggled as I picked it up it was a disgusting feeling, as I raised it higher and higher it looked at me with its eight eyes I put the monstorous thing in my mouth as i clampped my mouth shut I felt its two front legs fall off as i chewed i felt it. I felt wriggle and die, I felt its hairy body with my tounge.It was a disgusting sensation.then i swallowed it, as its hairy and disembodied body went down my throat I looked in the mirror seeing my reflection.its my reflection right ,right? i saw its eight eyes looking back at me or are they my eyes? I didn'nt know what I was looking at 
